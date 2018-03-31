@@ -1,1 +1,1 @@
-# Storing Comments from my [](shixuanli.com)
+# Storing Comments from my [Blog](shixuanli.com)
